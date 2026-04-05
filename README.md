@@ -25,7 +25,7 @@
 ## On the ball
 
 
-## Intensity
+## High Intensity
 
 
 ## Quick ball circulation
@@ -34,7 +34,7 @@
 ## Make a combination
 
 
-## 
+## High line
 
 
 ## 
