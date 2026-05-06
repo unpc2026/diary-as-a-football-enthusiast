@@ -34,13 +34,13 @@
 ## High line
 
 
-## 
+## Pragmatic Football
 
 
-## 
+## Discipline Defense & Offense
 
 
-## 
+## Exploit Spaces (In-Possession, Out-Of-Possession, Vertical Play, Switching Play)
 
 
 ## 
